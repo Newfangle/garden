@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/chapter-networking-for-co-op-membership-and-community-support/","tags":["gardenEntry"]}
+{"dg-publish":true,"permalink":"/chapter-networking-for-co-op-membership-and-community-support/"}
 ---
 
 

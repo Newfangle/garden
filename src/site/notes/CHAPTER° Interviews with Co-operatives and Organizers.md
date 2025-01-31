@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/chapter-interviews-with-co-operatives-and-organizers/","tags":["gardenEntry"]}
+{"dg-publish":true,"permalink":"/chapter-interviews-with-co-operatives-and-organizers/"}
 ---
 
 

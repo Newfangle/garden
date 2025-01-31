@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/chapter-empowerment-co-operative-why-and-where-from-here/","tags":["gardenEntry"]}
+{"dg-publish":true,"permalink":"/chapter-empowerment-co-operative-why-and-where-from-here/"}
 ---
 
 

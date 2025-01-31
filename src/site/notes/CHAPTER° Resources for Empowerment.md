@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/chapter-resources-for-empowerment/","tags":["gardenEntry"]}
+{"dg-publish":true,"permalink":"/chapter-resources-for-empowerment/"}
 ---
 
 
