@@ -18,4 +18,4 @@
 
 [[CHAPTER° Resources for Empowerment\|CHAPTER° Resources for Empowerment]]
 
-[[Board.canvas|Board]]]
+[[Board.canvas|Board]]
