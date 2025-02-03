@@ -14,6 +14,5 @@ https://youtu.be/bjON4bgC9zg?si=a5kIgMM383jWkC5D
 Behind the scenes of Cooperation Tulsa
 https://youtu.be/Hbz7YrwOb7U?si=ZzOaDSED8mpsv-_c
 Icarus project
-Chicago Disability Co-op Interview 
+Able Community Chicago Interview 
 https://youtu.be/J4cE9wbChe4?si=ce1KE_FHxVYJJKGw
-Prairie Commune Ottawa 
