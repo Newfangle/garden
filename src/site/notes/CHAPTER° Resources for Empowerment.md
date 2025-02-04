@@ -16,3 +16,5 @@ https://youtu.be/Hbz7YrwOb7U?si=ZzOaDSED8mpsv-_c
 Icarus project
 Able Community Chicago Interview 
 https://youtu.be/J4cE9wbChe4?si=ce1KE_FHxVYJJKGw
+Library economies 
+https://youtu.be/vW5EVNT--DA?si=sz8um-vtyz5xEg5e
