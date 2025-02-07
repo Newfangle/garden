@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/notes/"}
 ---
 
+Notes
 Funders: New Beginnings, ILRC, the foundation
 
 Growth: Confederation, library socialism

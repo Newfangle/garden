@@ -16,5 +16,5 @@
 
 [[CHAPTER° Safety and Accountability Resources\|CHAPTER° Safety and Accountability Resources]]
 
-[[CHAPTER° Resources for Empowerment\|CHAPTER° Resources for Empowerment]]
+[[CHAPTER° Resources for Empowerment and Citations\|CHAPTER° Resources for Empowerment and Citations]]
 
