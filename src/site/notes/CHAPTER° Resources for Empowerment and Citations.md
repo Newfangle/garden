@@ -20,3 +20,5 @@ Library economies
 https://youtu.be/vW5EVNT--DA?si=sz8um-vtyz5xEg5e
 #cite1 Disability Justice Anark
 https://youtu.be/AYp_0ytt1xE?si=vCNPhGemxv90bWFt 29:58
+Post Scarcity Anarchism Bookchin 
+https://youtu.be/NLQTMUW-gbo?si=HctjK3qoJTXqn_yL
